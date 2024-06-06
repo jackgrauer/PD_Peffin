@@ -1,12 +1,7 @@
 # Jordan "Jack" Grauer
 
 ## Contact
-jackgrauer@gmail.com
-856-304-3698
-facebook.com/jack.grauer.1
-instagram.com/grauer7008
-twitter.com/jack_grauer
-linkedin.com/in/jordan-grauer-87014263/
+856-304-3698, jackgrauer@gmail.com, facebook.com/jack.grauer.1, instagram.com/grauer7008, twitter.com/jack_grauer, linkedin.com/in/jordan-grauer-87014263/
 
 Philadelphia, PA. Four years' print newsroom experience, five remote. Expertise in data analysis, GIS mapping, public records, archival, academic, and legal research. Experience reporting on court proceedings, corporate filings, local and federal government, policing, urban policy, environmental concerns, nonprofit, real estate, and tech sectors, video gaming and gaming culture, and cybersecurity. 
 
